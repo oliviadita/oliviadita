@@ -103,7 +103,7 @@ State University of Jakarta — *2024*
 ---
 
 ## 📄 Resume
-📎 [Download CV](cv/CV_OliviaDitaKrisanti.pdf)
+📎 [Download CV](cv/Olivia_Dita_Krisanti_CV.pdf)
 
 ---
 
