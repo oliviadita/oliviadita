@@ -110,7 +110,7 @@ State University of Jakarta — *2024*
 ## 📫 Let’s Connect
 
 * GitHub: [https://github.com/oliviadita](https://github.com/oliviadita)
-* LinkedIn: [www.linkedin.com/in/oliviadita](www.linkedin.com/in/oliviadita)
+* LinkedIn: [www.linkedin.com/in/oliviadita](https://www.linkedin.com/in/oliviadita)
 * E-mail: [oliviaditakrisanti@gmail.com](mailto:oliviaditakrisanti@gmail.com)
 ---
 
